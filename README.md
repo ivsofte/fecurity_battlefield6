@@ -1,3 +1,7 @@
+![Fecurity Battlefield 6 - Screenshot 1](https://ivsofte.biz/images/bfec%20(1).jpg?crc=4176560670)
+
+![Fecurity Battlefield 6 - Screenshot 2](https://ivsofte.biz/images/bfec%20(2).jpg?crc=3803061514)
+
 
 ## README.md
 
